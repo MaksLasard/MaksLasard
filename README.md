@@ -1,4 +1,4 @@
-![wepik-export-20230510233629MaLL](https://github.com/MaksLasard/MaksLasard/assets/58670553/291ab257-3d33-4ebb-919c-922454706d2e)
+![wepik-export-20230510233914FWEY](https://github.com/MaksLasard/MaksLasard/assets/58670553/b988b0b1-262c-4faa-9f5e-a99e8417e6a5)
 
 # 👋 Привет всем! Я Максим 
 
