@@ -1,6 +1,6 @@
-![wepik-export-20230510233914FWEY](https://github.com/MaksLasard/MaksLasard/assets/58670553/b988b0b1-262c-4faa-9f5e-a99e8417e6a5)
+![profileGitHub](https://github.com/MaksLasard/MaksLasard/assets/58670553/8d5afbd5-6280-41af-859e-cad87c612483)
 
-# 👋 Привет всем! Я Максим 
+# 👋 Привет всем! Я Максим !
 
  ## Обо мне
 
